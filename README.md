@@ -6,4 +6,6 @@
 
 ![[Pasted image 20230607184422.png]]
 
+![[Pasted image 20230607205148.png]]
+
 
